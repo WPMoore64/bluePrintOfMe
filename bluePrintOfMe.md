@@ -6,3 +6,4 @@ Operating System
 - Intp / Gemini 
 - aymazingly grat speeller
 - I enjoy Clash Royale
+
