@@ -6,3 +6,9 @@ Operating System
 - Intp / Gemini 
 - aymazingly grat speeller
 - I enjoy Clash Royale
+
+Whakapapa
+- Mothers side - Ngati Kahu 
+- Fathers side - England 
+- Born in Whangarei 
+- Raised in Taipa
