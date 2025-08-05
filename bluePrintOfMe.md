@@ -12,3 +12,7 @@ Whakapapa
 - Fathers side - England 
 - Born in Whangarei 
 - Raised in Taipa
+
+Best out of me
+
+-
