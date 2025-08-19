@@ -21,4 +21,4 @@ Best out of me
 - When I am interested in a topic I like to disscuss it
 - I like to challenge/ be challenged on opinions 
 - Honesty over everything
-_ 
+- 
